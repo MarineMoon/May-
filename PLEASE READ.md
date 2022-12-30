@@ -9,4 +9,7 @@ My socials are:
 Discord: MarineMoon#2003 (do not friend req me unless we’re close)
 Tumblr: loonyloonar 
 TikTok: loonieloonar
+I mainly use these two skins, so you can use them to recognize me!
+
+![descarga (2)](https://user-images.githubusercontent.com/119896347/210101591-a351a20b-0bc5-44c8-b7f9-a5172db6448e.png)
 ![descarga (3)](https://user-images.githubusercontent.com/119896347/210101423-4749cc88-6c9d-46c5-a8f2-ee1613540431.png)

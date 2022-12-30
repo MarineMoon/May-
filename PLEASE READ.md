@@ -7,7 +7,7 @@ Calling me Lunar if we’re not close may result in me not talking to you anymor
 They / she + neopronouns (please ask them)
 My socials are:
 
-![pony-town-fortnite queen-boop-blinking-padded-4x](https://user-images.githubusercontent.com/119896347/210100625-ba8de703-8c9c-4d10-bfe8-c38eeee24525.gif) Discord: MarineMoon#2003 (do not friend req me unless we’re close)
+ Discord: MarineMoon#2003 (do not friend req me unless we’re close)
 Tumblr: loonyloonar 
-TikTok: loonieloonar
+TikTok: loonieloonar![pony-town-fortnite queen-boop-blinking-padded-4x](https://user-images.githubusercontent.com/119896347/210100625-ba8de703-8c9c-4d10-bfe8-c38eeee24525.gif)
 
